@@ -189,9 +189,70 @@ Today was packed with productive tasks and back-to-back expert lectures that ope
   - Overview of **Centralised Modern Laboratory (CML)** and practical resources available  
   - Encouraged us to make use of the labs and learn by doing 🔬
 
+
 ---
 
 💬 *Today gave a solid mix of practical work, technical learning, and motivation. Every speaker added a new perspective — I’m feeling more confident and curious with each passing day at GNDEC!* 💙📘
+# 🗓️ Day 7 – Induction Program Log | 7th August 2025
+
+## 📚 Guidance, Clubs & Academic Learning
+
+Today was a good mix of club introductions, student welfare guidance, exam awareness, and subject learning — a well-balanced and productive day.
+
+### 🕘 Schedule Summary
+
+- 🎤 `09:30 AM – 10:30 AM`:  
+  **Lecture by Dr. Amit Karma** (*Incharge DMC – Digital Marketing Club*) – Auditorium  
+  - Introduced us to the **Digital Marketing Club** and its activities.  
+  - Learned how the club helps students develop branding, online promotion, and content creation skills — valuable for both personal and professional growth.
+
+- 🎤 `10:30 AM – 11:30 AM`:  
+  **Lecture by Dr. Parminder Singh** (*Dean Student Welfare*) – Auditorium  
+  - Spoke about welfare facilities, scholarships, and support available for students.  
+  - Motivated us to participate actively in both academic and extracurricular activities.
+
+- 🎤 `11:30 AM – 12:30 PM`:  
+  **Lecture by Dr. Randhir Singh** – Auditorium  
+  - Topic: *Conduct of Examination* 📄✏️  
+  - Explained examination rules, internal assessment criteria, and discipline guidelines.
+
+- 🍴 `12:30 PM – 01:30 PM`:  
+  **Break Time** – relaxed with friends and grabbed a quick snack.
+
+- ➕ `01:30 PM – 02:30 PM`:  
+  **Mathematics Lecture** – *Prof. Rajbir Kaur*, Room F-106  
+  - Focused on problem-solving and revising algebra concepts.
+
+- ⚡ `02:30 PM – 03:30 PM`:  
+  **BEEE Lecture** – *Prof. Balwinder Singh*, Room F-106  
+  - Covered basics of electrical circuits with practical examples.
+
+---
+
+💬 *Day 7 gave us a perfect mix of technical, academic, and personal development learning. Excited to explore the Digital Marketing Club further!* 💙
+# 🗓️ Day 8 – Induction Program Log | 8th August 2025
+
+## 🧪 Short but Focused Academic Day
+
+Today was lighter compared to the previous days, with only two lectures — but both were engaging and useful for strengthening our basics.
+
+### 🕘 Schedule Summary
+
+- 🧪 `09:00 AM – 10:30 AM`:  
+  **Chemistry Lecture** – *Prof. Mandeep Kaur*, Room F-108  
+  - We explored fundamental chemistry concepts and their practical applications in engineering.  
+  - The lecture was interactive, with examples that connected theory to real-world scenarios.  
+  - It helped in revising concepts from school while understanding how they’ll be applied in our course.
+
+- 📖 `10:30 AM – 12:00 PM`:  
+  **English Lecture** – *Prof. Nisha*, Room F-108  
+  - Focused on communication skills, grammar, and vocabulary building.  
+  - We also discussed how strong communication can improve professional opportunities.  
+  - The lecture had a few fun exercises that kept it engaging and practical.
+
+---
+
+💬 *Day 8 was short but productive — no long schedules or heavy topics, just quality academic sessions. It felt nice to have a relaxed pace while still learning something valuable in both science and communication.* 💙📘
 
 
 
